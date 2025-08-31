@@ -5,7 +5,6 @@
 <div align="center">
   
 ![](https://komarev.com/ghpvc/?username=liittle-puppy&color=630800&label=HANDLERS)           
-
 <div align="center">
 
 <sub> SIGN  MY  [ATABOOK](https://lost-puppy.atabook.org/)  (/NF)  AND  READ  MY  [RENTRY](https://rentry.co/0130lostpup)  BEFORE  INTERACTING  WITH  ME,  IT  HAS  IMPORTANT  INFO  ABOUT  ME  🦷
