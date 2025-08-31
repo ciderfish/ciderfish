@@ -16,6 +16,8 @@
 
 <sub> IF  I  DO  NOT  RESPOND  **AT  ALL**,  I  AM  PROBABLY  ASLEEP  (HUGE  SLEEPY-HEAD  THROUGH  AND  THROUGH)  OR  REALLY  BUSY.  🥩
 
+<sub> I  HAVE  A  WEEKEND  JOB.  DO  NOT  BE  SURPRISED  IF  I  DISAPPEAR  ON SATURDAYS  AND  SUNDAYS FOR  ALMOST  THE  ENTIRE  DAY.
+
 <div align="center">
 
 ![](https://files.catbox.moe/dcy89s.jpg)
