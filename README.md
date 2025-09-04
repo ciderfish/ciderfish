@@ -21,7 +21,7 @@
 
 <div align="center">
 
-![](https://files.catbox.moe/dcy89s.jpg)
+![](https://files.catbox.moe/3g336j.webp)
 
 <div align="center">
 
