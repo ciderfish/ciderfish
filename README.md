@@ -1,6 +1,6 @@
 <div align="center">
 
-<sub> LUNAR,  MOON,  OR  SOLEIL  🐕
+<sub> SAM  OR  LUMINE  🐕
 
 <div align="center">
   
