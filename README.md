@@ -1,6 +1,6 @@
 <div align="center">
 
-<sub> sam(my) ᵒʳ lumine ⊹ ࣪ ˖
+<sub> sam(my) ᵒʳ enid ⊹ ࣪ ˖
 
 <div align="center">
   
