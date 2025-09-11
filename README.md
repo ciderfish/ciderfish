@@ -1,6 +1,6 @@
 <div align="center">
 
-<sub> sam(my) ᵒʳ enid ⊹ ࣪ ˖
+<sub> veil ᵒʳ enid ⊹ ࣪ ˖
 
 <div align="center">
   
