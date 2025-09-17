@@ -17,6 +17,8 @@
 
 ![](https://files.catbox.moe/t3tu8q.webp) ![](https://files.catbox.moe/8373si.webp) ![](https://files.catbox.moe/nspg5n.webp) ![](https://files.catbox.moe/vpfl2s.webp) ![](https://files.catbox.moe/rleyva.png) ![](https://files.catbox.moe/j14se6.gif) ![](https://files.catbox.moe/5mvwkr.gif) ![](https://files.catbox.moe/tzw78v.gif)
 
+![](https://files.catbox.moe/46nr3y.png)
+
 <div align="center">
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=4pzyy4lk1j1oz6pdawgau0yaw&cover_image=true&theme=natemoo-re&show_offline=false&background_color=4d0000&interchange=false&bar_color=780000&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
