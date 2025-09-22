@@ -4,19 +4,16 @@
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=liittle-puppy&color=ff63a2&label=starlings)           
+![](https://komarev.com/ghpvc/?username=liittle-puppy&color=000000&label=bite-marks)           
 <div align="center">
 
-<sub> sign my [ata](https://barkybby.atabook.org/) (/NF) and read my [rentry](https://rentry.co/0130lostpup) before interacting with me, please!! it has very important information about me,,
+<sub> sign my [ata](https://guardmuttz.atabook.org/) (/NF) and read my [rentry](https://rentry.co/0130lostpup) before interacting with me, please!! it has very important information about me,,
 
 <div align="center">
 
-![](https://files.catbox.moe/2z317q.webp)
+![](https://files.catbox.moe/a5wi7q.gif)![](https://files.catbox.moe/vbx651.gif)![](https://files.catbox.moe/jd86ye.gif)![](https://files.catbox.moe/xwbtjq.gif)
 
-![](https://files.catbox.moe/goehu3.webp)
-
-![](https://files.catbox.moe/t3tu8q.webp) ![](https://files.catbox.moe/8373si.webp) ![](https://files.catbox.moe/nspg5n.webp) ![](https://files.catbox.moe/vpfl2s.webp) ![](https://files.catbox.moe/rleyva.png) ![](https://files.catbox.moe/j14se6.gif)
-![](https://files.catbox.moe/46nr3y.png)
+![](https://files.catbox.moe/bl24tp.webp)![](https://files.catbox.moe/69k6od.webp)
 
 <div align="center">
 
