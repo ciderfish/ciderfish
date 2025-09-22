@@ -7,7 +7,7 @@
 ![](https://komarev.com/ghpvc/?username=liittle-puppy&color=000000&label=bite-marks)           
 <div align="center">
 
-<sub> sign my [ata](https://guardmuttz.atabook.org/) (/NF) and read my [rentry](https://rentry.co/0130lostpup) before interacting with me, please!! it has very important information about me,,
+<sub> sign my [ata](https://guardmuttz.atabook.org/) (/NF) and read my main [rentry](https://rentry.co/0130lostpup) before interacting with me, please!! it has very important information about me,,
 
 <div align="center">
 
