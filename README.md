@@ -1,6 +1,6 @@
 <div align="center">
 
-<sub> veil ᵒʳ riley ⊹ ࣪ ˖
+<sub> veil, soko, ᵒʳ riley ⊹ ࣪ ˖
 
 <div align="center">
   
