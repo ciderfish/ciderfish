@@ -9,6 +9,8 @@
 
 <sub> sign my [ata](https://guardmuttz.atabook.org/) (/NF) and read my main [rentry](https://rentry.co/0130lostpup) before interacting with me, please!! it has very important information about me,,
 
+not too keen on small talk (such as asking "hru") unless you're a close friend lol, sorry. i get nervous easily n' its just really awkward for me.
+
 <div align="center">
 
 ![](https://files.catbox.moe/a5wi7q.gif)![](https://files.catbox.moe/vbx651.gif)![](https://files.catbox.moe/jd86ye.gif)![](https://files.catbox.moe/xwbtjq.gif)
