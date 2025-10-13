@@ -1,6 +1,6 @@
 <div align="center">
 
-<sub> umm thinking of a name rightnow..
+<sub> all my names are in my prnouns page.. :3
 
 <div align="center">
   
