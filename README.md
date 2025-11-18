@@ -29,6 +29,8 @@
   </a>
 </p>
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display&size=25&duration=5001&pause=1000&color=F7F7F7&background=0003FF00&width=435&lines=bloom+at+your+own+pace+%5E_%5E)](https://git.io/typing-svg)
+
 <p align="center">
     <img width="1000" src="https://files.catbox.moe/b0o6yi.jpg">
 </p>
