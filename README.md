@@ -31,7 +31,6 @@
   </a>
 </p>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Spectrum+Handgloves&weight=900&size=17&pause=1000&color=F7005D&width=431&lines=soon+you+will+look+just+like+me...+beautiful!)](https://git.io/typing-svg)
 
 <p align="center">
     <img width="1000" src="https://files.catbox.moe/b0o6yi.jpg">
