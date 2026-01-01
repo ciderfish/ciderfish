@@ -11,7 +11,7 @@
 ![](https://komarev.com/ghpvc/?username=ciderfish&color=000000&label=bats)           
 <div align="center">
 
-<sub> read my main rentry before interacting with me, please!! it has very important information about me,,
+<sub> ‼️‼️I suggest reading my main/longer rentry b4 interacting with me‼️‼️
 
 <sub> not too keen on small talk (such as asking "hru") unless you're a close friend lol, sorry. i get nervous easily n' its just really awkward for me.
 
