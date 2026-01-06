@@ -15,7 +15,7 @@
 
 <sub> not too keen on small talk (such as asking "hru") unless you're a close friend lol, sorry. i get nervous easily n' its just really awkward for me.
 
-<sub> people under 15 refrain from interacting, please ^_^;
+<sub> people under 16 refrain from interacting, please ^_^;
 
 <sub> i am trying to get used to going up to people and cuddling them first!!!!!!!!!!!!!! who's proud!!!!!!!!!! (please be patien t with m.e)
 
