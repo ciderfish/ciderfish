@@ -8,7 +8,7 @@
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=ciderfish&color=000000&label=💣)           
+![](https://komarev.com/ghpvc/?username=ciderfish&color=000000&label=🦴)           
 <div align="center">
 
 <sub> ‼️‼️I suggest reading my main/longer rentry b4 interacting with me‼️‼️
