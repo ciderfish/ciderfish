@@ -4,7 +4,7 @@
 
 <div align="center">
 
-<img src="https://64.media.tumblr.com/a00a1d5d5927b17ac8d0018b67785936/25c6db59996e7f1e-6d/s400x600/7cb0f66c5d36cc8d349778fba080651feca683c6.pnj" width="50" height="50"> [rentry](https://rentry.co/0130lostpup) ✦ [ata](https://armyof2.atabook.org/) ✦ [guns.lol](https://guns.lol/yappuccino) ✦ [prns.page](https://en.pronouns.page/@lonesomecowboi)
+<img src="https://64.media.tumblr.com/a00a1d5d5927b17ac8d0018b67785936/25c6db59996e7f1e-6d/s400x600/7cb0f66c5d36cc8d349778fba080651feca683c6.pnj" width="50" height="50"> [rentry](https://rentry.co/0130lostpup) ✦ [ata](https://armyof2.atabook.org/) ✦ [guns.lol](https://guns.lol/yappuccino) ✦ [prns.page](https://en.pronouns.page/@pawsitivelyunwel)
 
 <div align="center">
   
