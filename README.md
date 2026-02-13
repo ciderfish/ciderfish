@@ -17,7 +17,7 @@
 
 <sub> people under 16 refrain from interacting, please ^_^;
 
-<sub> i am trying to get used to going up to people and cuddling them first!!!!!!!!!!!!!! who's proud!!!!!!!!!!
+<sub> thank you to whoever cuddles me, im trying my best to get out of my comfort zone !! <3
 
 <p align="center">
     <img width="500" src="https://files.catbox.moe/aevcsl.png">
