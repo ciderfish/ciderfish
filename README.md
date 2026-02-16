@@ -13,7 +13,7 @@
 
 <sub> ‼️‼️I suggest reading my main/longer rentry b4 interacting with me‼️‼️
 
-<sub> not too keen on small talk (such as asking "hru") unless you're a close friend lol, sorry. i get nervous easily n' its just really awkward for me.
+<sub> not too keen on small talk (such as asking "hru") unless you're a close friend my bad guys..... i get nervous easily n' its just really awkward for me. I'm naturally a quiet person!!!
 
 <sub> people under 16 refrain from interacting, please ^_^;
 
