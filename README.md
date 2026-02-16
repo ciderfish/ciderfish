@@ -17,7 +17,7 @@
 
 <sub> people under 16 refrain from interacting, please ^_^;
 
-<sub> thank you to whoever cuddles me, im trying my best to get out of my comfort zone !! <3
+<sub> thank you to whoever cuddles me / lets me cuddle them, im trying my best to get out of my comfort zone bleuururghh
 
 <p align="center">
     <img width="500" src="https://files.catbox.moe/aevcsl.png">
