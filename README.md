@@ -16,7 +16,7 @@
 <sub> not too keen on small talk (such as asking "hru") unless you're a close friend my bad guys..... i get nervous easily n' its just really awkward for me. I'm naturally a quiet person!!!
 if i AM cuddling you, i'll probably stay there the entire time.......feel free to leave you're not being held hostage :,3
 
-<sub> people under 16 refrain from interacting, please ^_^;
+<sub> people under 16 refrain from interacting unless I already know you, please ^_^;
 
 <sub> thank you to whoever cuddles me / lets me cuddle them, im trying my best to get out of my comfort zone bleuururghh
 
