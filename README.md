@@ -20,6 +20,8 @@ if i AM cuddling you, i'll probably stay there the entire time.......feel free t
 
 <sub> thank you to whoever cuddles me / lets me cuddle them, im trying my best to get out of my comfort zone bleuururghh
 
+<sub> I might notttt answer sometimes if I dont feel talkative
+
 <p align="center">
     <img width="500" src="https://files.catbox.moe/aevcsl.png">
 </p>
