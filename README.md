@@ -22,6 +22,8 @@ if i AM cuddling you, i'll probably stay there the entire time.......feel free t
 
 <sub> I might notttt answer sometimes if I dont feel talkative
 
+<sub> I forget I'm on pt sometimes, I apologize if I don't answer to your whispers :,)
+
 <p align="center">
     <img width="500" src="https://files.catbox.moe/aevcsl.png">
 </p>
