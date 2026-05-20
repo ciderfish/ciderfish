@@ -1,10 +1,6 @@
-<p align="center">
-    <img width="1000" src="https://files.catbox.moe/tv1et0.jpg">
-</p>
+work in progress 
 
-<div align="center">
-
-<img src="https://64.media.tumblr.com/a00a1d5d5927b17ac8d0018b67785936/25c6db59996e7f1e-6d/s400x600/7cb0f66c5d36cc8d349778fba080651feca683c6.pnj" width="50" height="50"> [rentry](https://rentry.co/0130lostpup) ✦ [rentry 2](https://rentry.co/classifiedriley) ✦ [ata](https://armyof2.atabook.org/) ✦ [guns.lol](https://guns.lol/yappuccino) ✦ [prns.page](https://en.pronouns.page/@pawsitivelyunwel)
+<img src="https://64.media.tumblr.com/a00a1d5d5927b17ac8d0018b67785936/25c6db59996e7f1e-6d/s400x600/7cb0f66c5d36cc8d349778fba080651feca683c6.pnj" width="50" height="50"> [rentry](https://rentry.co/0130lostpup) ✦ [rentry 2](https://rentry.co/classifiedriley) ✦ [ata](https://armyof2.atabook.org/) ✦ [guns.lol](https://guns.lol/yappuccino) ✦ [prns.page](https://en.pronouns.page/@heyrekil)
 
 <div align="center">
   
@@ -23,9 +19,6 @@ if i AM cuddling you, i'll probably stay there the entire time.......feel free t
 <sub> I might notttt answer sometimes if I dont feel talkative
 
 <sub> I forget I'm on pt sometimes, I apologize if I don't answer to your whispers :,)
-
-<p align="center">
-    <img width="500" src="https://files.catbox.moe/aevcsl.png">
 </p>
 
 <div align="center">
